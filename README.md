@@ -1,1 +1,0 @@
-# Guardian-of-nature-JP-WEB
